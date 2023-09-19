@@ -8,7 +8,6 @@ Meu nome e Giovanna, mais podem me chamar de Gigi ou Gigizinha.
 
  giovanna.moreira.santos@escola.pr.gov.br
  
- @7gigii._ segue lá amores
 
 
 ![](https://media.tenor.com/JWJRjZFUa_cAAAAC/one-piece-anime.gif)
